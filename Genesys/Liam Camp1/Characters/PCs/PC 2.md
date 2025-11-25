@@ -1,0 +1,3 @@
+- Fairy Tinkerer
+  - Works in a crystal shop
+  - Played by Una
