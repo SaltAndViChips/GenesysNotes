@@ -1,3 +1,2 @@
-- Criminal Gang in [[Canadian History|Canadian History]] based out of [[Montreal]](?)
-- Modus Operandi: ? 
-- Goals: ?
+- People with Latent Magic
+    -  Abilities Awakened within the last century.

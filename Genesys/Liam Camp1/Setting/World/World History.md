@@ -1,5 +1,5 @@
 - Magic appeared in the world in the last century
 - Began slowly at first but the spread has been wide and most major countries accept it as a part of modern culture
-- Magic awakened latent magical features of existing people (I.E Long Eared Humans may have innate Elven features awakened by Magic.)
+- Magic awakened latent magical features of existing people (I.E Long Eared Humans may have innate Elven features awakened by Magic.) Those who were awakened are called [[Weirdos]].
 - Many major governments use magic as a tool to control their populace.
-- Magic has led to many areas being ungovernable, leading to rebel or criminal groups (Such as the [[Weirdos]]) in taking over some areas as territory.
+- Magic has led to many areas being ungovernable, leading to rebel or criminal groups taking over some areas as territory.
