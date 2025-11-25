@@ -1,0 +1,3 @@
+- Criminal Gang in [[Notes/Genesys/Liam Camp1/Setting/World/Canada/History|History]] based out of [[Montreal]](?)
+- Modus Operandi: ? 
+- Goals: ?
