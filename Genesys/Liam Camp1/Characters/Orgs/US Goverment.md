@@ -1,4 +1,4 @@
-- Leaders of [[Notes/Genesys/Liam Camp1/Setting/World/USA/History|History]]
+- Leaders of [[US History|US History]]
 - Modus Operandi: Divine Magic / Religious Fervor
 - Goals:  Religious Domination (?)
   
