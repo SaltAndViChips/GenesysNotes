@@ -21,6 +21,10 @@
 - Hates knock-offs of [[Magik-Up!™️]], fully believes it is everything advertised.
 - Incredibly gullible.
 - Innately mundane, unable to cast magic naturally.
+### Fears
+- Losing his job
+- Seagulls
+- Slasher Films
 
 ### Physical Appearance
 - 5'11
