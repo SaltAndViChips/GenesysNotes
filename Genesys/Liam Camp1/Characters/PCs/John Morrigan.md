@@ -12,6 +12,10 @@
 - Resolve the ongoing conflict
 - Return to his position in [[Magik-Up Co.™️]]
 - Check up with [[Sam Stansfield]], find out why he took over John's position
+### Strengths
+- Honest
+- Goal Oriented
+- Great with people
 
 ### Flaws
 - Hates knock-offs of [[Magik-Up!™️]], fully believes it is everything advertised.
